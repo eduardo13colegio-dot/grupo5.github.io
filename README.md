@@ -10,7 +10,7 @@ Integrantes del equipo:
 
 Cruz Cuevas, Jorge Eduardo
 
-Manuelo Yupanqui, Ashlee Jhamylet 
+Manuelo Yupanqui, Ashle Jhamylet 
 
 Valle Vargas, Gabriel Alexander 
 
