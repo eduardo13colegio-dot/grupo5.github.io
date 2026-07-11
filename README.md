@@ -12,9 +12,6 @@ Cruz Cuevas, Jorge Eduardo
 
 Manuelo Yupanqui, Ashle Jhamylet 
 
-Valle Vargas, Gabriel Alexander 
-
-Segmentos Objetivo
 
 Alertix está dirigido principalmente a tres segmentos de usuarios:
 
