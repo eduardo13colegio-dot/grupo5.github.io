@@ -12,7 +12,6 @@ Cruz Cuevas, Jorge Eduardo
 
 Manuelo Yupanqui, Ashlee Jhamylet 
 
-Valle Vargas, Gabriel Alexander 
 
 Segmentos Objetivo
 
